@@ -12,7 +12,7 @@
 #### [2017-07-04](http://hnng.moe/f/SNb)
 ![](http://hnng.moe/f/SNa)
 #### [2017-08-23](http://hnng.moe/f/Tb7)
-![](http://hnng.moe/f/Tbn)
+![](http://hnng.moe/f/TcL)
 
 ## Atsushi Original (Not Complete)
 #### [2017-08-23](http://hnng.moe/f/Tb8)
