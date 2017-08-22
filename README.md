@@ -1,6 +1,6 @@
 # Kuroda Atsushi skin Compilation
 
-**Click on the skin name to download.**
+**Click on a date to download.**
 
 ## Atsushi Edit
 #### [2017-06-10](http://hnng.moe/f/SR5)
